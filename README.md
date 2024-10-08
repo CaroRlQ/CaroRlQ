@@ -5,7 +5,7 @@ colaborando en equipo para alcanzar resultados exitosos. Estoy emocionada por la
 motor que impulsa mi desarrollo profesional. ¡Estoy lista para enfrentar cualquier reto y llevar mis habilidades al siguiente nivel!💪
 
 # 📫 Encuentrame en ...
-  - [Linkedin](https://www.linkedin.com/in/caro-raquel-quispe-quispe-02a0a6274/)
+  - [Linkedin](https://www.linkedin.com/in/carorq/)
   - [Correo](caroraquelq@gmail.com)
 
 # 🔨Lenguajes y Herramientas ...
